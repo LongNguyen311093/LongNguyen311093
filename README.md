@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LongNguyen311093
+- 👀 I’m interested in data analytics
+- 🌱 I’m currently learning google analytics certificate programs
+- 💞️ I’m looking to collaborate on exploring the data world
+- 📫 Please reach me via my email duclong3110@gmail.com
